@@ -6,3 +6,5 @@ Listen, memorize, recall, speak
 read, compose, speak
 
 No translation at all
+
+Note down some native expression here: </expression.md>
