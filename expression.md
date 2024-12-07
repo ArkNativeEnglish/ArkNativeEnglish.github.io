@@ -1,5 +1,29 @@
 day crew, night crew
 
+The desire of food and sex is of human nature.
+
+
+
+extreme organization addict
+
+I have been blown away by 
+
+torn
+
+procrastination
+
+meritamocracy
+
+a PR stunt
+
+
+
+off-duty outfit
+
+crossbody bag
+
+leggings
+
 There’s no use crying over spilt milk.
 
 Spilt water is hard to recover.
