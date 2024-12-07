@@ -1,4 +1,6 @@
+https://app.bilibili.com/
 <https://www.bilibili.com/video/BV1aL4y1T7sp/>
+
 
 https://www.youtube.com/@Resilience_English
 
@@ -16,15 +18,15 @@ Music Songs
 
 萍聚    https://www.youtube.com/watch?v=dnAS-xuORpg
 
-吻别    https://www.youtube.com/watch?v=s-wivww9Cdk
+Goodbye Kiss https://www.youtube.com/watch?v=s-wivww9Cdk
 
 传奇 李健 https://www.youtube.com/watch?v=0vgLcZrI-30
 
-Marina 法国13岁小美女 https://www.youtube.com/watch?v=Evj9NtRbbAw
+Marina https://www.youtube.com/watch?v=Evj9NtRbbAw
 
-Madonna - Material Girl https://www.youtube.com/watch?v=6p-lDYPR2P8、
+Material Girl https://www.youtube.com/watch?v=6p-lDYPR2P8、
 
-悲惨世界主题曲 I dreame a dream https://www.youtube.com/watch?v=fs5-iJxDqhQ
+I dreame a dream https://www.youtube.com/watch?v=fs5-iJxDqhQ
 
 You Raise me up https://www.youtube.com/watch?v=jW1dXDb7aDw
 
