@@ -12,4 +12,6 @@ Resources: <https://arknativeenglish.github.io/resources.md>
 
 Note down some native expression here: <https://arknativeenglish.github.io/expression.md>
 
+immerse into Encyclopedia, Wikipedia, facebook, Instagram, Youtube, Podcast, RSS
+
 Google: define xxx and then check the context, picture to understand what the new word means
